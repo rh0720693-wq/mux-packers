@@ -1,7 +1,7 @@
 
 # 🚚 Mux Packers & Movers
 
-**Safe • Reliable • Fast Relocation Services in Multan, Pakistan**
+**Safe • Reliable • Fast Relocati Services in Multan, Pakistan**
 
 ---
 
